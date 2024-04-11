@@ -1,6 +1,6 @@
-Hello Everyoen This Tool Made By B7Rrr - Night Team If you have a problem, contact me via DM or Discord Night Team
-DM - B7Rrr
-Discord - https://discord.gg/N-T
+Hello Everyoen This Tool Made By B7Rrr - Night Team If you have a problem, contact me via DM or Discord Night Team\r\n
+DM - B7Rrr\r\n
+Discord - https://discord.gg/N-T\r\n
 Enjoy ..
 
 #Pic - 1
