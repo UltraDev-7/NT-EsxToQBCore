@@ -1,6 +1,6 @@
 Hello Everyoen This Tool Made By B7Rrr - Night Team If you have a problem, contact me via DM or Discord Night Team
 
-DM - B7Rrr
+DM - B7Rrr <https://discord.com/users/942486118597816321>
 
 Discord - https://discord.gg/N-T
 
