@@ -4,6 +4,8 @@ DM - B7Rrr <https://discord.com/users/942486118597816321>
 
 Discord - https://discord.gg/N-T
 
+Previews - https://youtu.be/1TEA-gMsBU0
+
 Enjoy ..
 
 # Pic - 1
